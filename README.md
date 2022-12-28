@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @alfainter
+- 👀 I’m interested in gaming, programming and foreign languages.
+- 🌱 I’m currently learning C++
+- 📫 You can contact me:
+- Instagram, Telegram @alfa_inter;
+- e-mail valerafftroll@gmail.com;
+- discord Альфа#6144
